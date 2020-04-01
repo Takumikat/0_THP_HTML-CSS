@@ -1,4 +1,4 @@
-Saut Moussaillon ! :)
+Salut Moussaillon ! :)
 
 Bienvenue sur THP !
 
